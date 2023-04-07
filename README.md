@@ -22,3 +22,7 @@ https://www.donga.com/news/Society/article/all/20221005/115803888/1
 [2022. 08 수원 세 모녀](https://namu.wiki/w/수원%20세%20모녀%20사망%20사건)
 
 위기가구발굴시스템
+
+[230407 "전기 사용 없으면 긴급출동"…SKT '안부 든든 서비스' 개시](https://www.news1.kr/articles/?5006408)
+
+
