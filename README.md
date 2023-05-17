@@ -25,4 +25,5 @@ https://www.donga.com/news/Society/article/all/20221005/115803888/1
 
 [230407 "전기 사용 없으면 긴급출동"…SKT '안부 든든 서비스' 개시](https://www.news1.kr/articles/?5006408)
 
+[230518 경기도, AI·마이데이터로 고독사 막는다](https://www.hankyung.com/society/article/2023051722021)
 
